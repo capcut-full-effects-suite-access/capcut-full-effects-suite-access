@@ -1,0 +1,1 @@
+# capcut-full-effects-suite-access
